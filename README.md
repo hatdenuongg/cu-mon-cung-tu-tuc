@@ -24,8 +24,6 @@ Vậy nên, khi tọa tại cung Tử Tức thì Cự Môn thường chủ về 
 
 Để có thêm thông tin hữu ích tìm hiểu về: [sao thiên đồng cung tử tức](https://www.tumblr.com/giacattruongphong/801700290570174464/luan-giai-cach-cuc-thien-dong-cung-tu-tuc-y-nghia)
 
-![Sao Cự Môn là một trong 14 sao Chính tinh, chủ về khả năng ăn nói, đa mưu, dễ gặp thị phi](https://tracuutuvi.com/wp-content/uploads/2024/06/sao-cu-mon-1.jpg)
-
 Cự Môn tượng trưng cho cái Miệng; khi tọa cung Tử Tức chủ về con cái độc lập, có tài ăn nói và ứng biến
 
 Ý nghĩa của cách cục Cự Môn cung Tử Tức khi kết hợp cùng các sao khác
