@@ -3,7 +3,7 @@ Cự Môn cung Tử Tức | Luận giải ý nghĩa tổng quan và khi kết h�
 
 Cự Môn cung Tử Tức thường chủ về việc con cái đương số là người độc lập, có tài ăn nói. Nếu gặp sao tốt thì con cái có thể trở thành người có danh tiếng lớn, được yêu quý. Còn có sao xấu đi cùng thì con cái dễ gặp tai họa, thị phi do lời nói hàng ngày. Trong bài viết này, hãy cùng tracuutuvi.com luận giải về ý nghĩa tổng quan của cách cục Cự Môn cung Tử Tức và  khi kết hợp với các sao khác bạn nhé!
 
-Xem thêm về [luận giải cung Tử Tức](https://tracuutuvi.com/cung-tu-tuc.html)
+Xem thêm về [Cung Tử Tức là gì?](https://tracuutuvi.com/cung-tu-tuc.html)
 
 Tổng quan về cách cục Cự Môn cung Tử Tức
 ----------------------------------------
@@ -22,7 +22,7 @@ Cự Môn: Miếu địa tại Mão, Dậu
 
 Vậy nên, khi tọa tại cung Tử Tức thì Cự Môn thường chủ về con cái là người có tính cách độc lập, giỏi ăn nói. Nhưng nếu gặp thêm sao xấu thì có thể chủ về con cái dễ dính vào thị phi, trắc trở vì lời ăn tiếng nói hàng ngày. 
 
-Để có thêm thông tin hữu ích tìm hiểu về: [xem tử vi trọn đời theo giờ sinh](https://tracuutuvi.com/)
+Để có thêm thông tin hữu ích tìm hiểu về: [sao thiên đồng cung tử tức](https://www.tumblr.com/giacattruongphong/801700290570174464/luan-giai-cach-cuc-thien-dong-cung-tu-tuc-y-nghia)
 
 ![Sao Cự Môn là một trong 14 sao Chính tinh, chủ về khả năng ăn nói, đa mưu, dễ gặp thị phi](https://tracuutuvi.com/wp-content/uploads/2024/06/sao-cu-mon-1.jpg)
 
@@ -60,10 +60,12 @@ Cự Môn, Hóa Kỵ đồng cung Tử Tức chủ về những thị phi, đi�
 
 Cung Tử Tức có các sao Cự Môn, Kình Dương, Đà La đồng tọa chủ về sinh con trai muộn hoặc con trai có sức khỏe không tốt, hay ốm đau. Nếu cách cục sao Cự Môn cung Tử Tức có Kình Dương, Đà La; lại thêm Hỏa Tinh, Linh Tinh, Địa Không, Địa Kiếp cùng tọa thì chủ về con cái của đương số có sức đề kháng yếu, dễ mắc bệnh.
 
+**"Sao Tham Lang an tại Cung Tử Tức hé lộ vận mệnh, tính cách và tương lai của con cái — khám phá chi tiết trong bài viết này: [tham lang cung tử tức](https://coubic.com/tuvidauso/1606024)**
+
 ### Cự Môn cung Tử Tức tại Tý, Ngọ
 
 Sao Cự Môn tọa cung Tử Tức tại Tý, Ngọ chủ về sinh con muộn nhưng con cái là người tài. Đặc biệt, nếu Cự Môn tọa tại Tý thì sẽ tạo thành cách cục “Thạch trung ngọc ẩn” - tức người tài hoa nhưng không lộ ra bên ngoài. Vậy nên, đương số thường sinh con muộn, đặc biệt là người con trai. Nhưng con cái sinh ra là người sáng sủa, thông minh. 
 
 Nếu có thêm sao Thiên Cơ, Hóa Lộc ở cung đối thì chủ về con cái xa quê hương mới lập nghiệp lớn. 
 
-Cự Môn cung Tử Tức thường chủ về con cái có tính cách độc lập, tài ăn nói và ứng biến tốt. Tuy nhiên, nếu có sao xấu đi cùng thì có thể chủ về thị phi, điều tiếng và tai họa xảy đến với con cái của đương số do lời ăn tiếng nói hằng ngày. Hy vọng bài viết này đã giúp bạn hiểu rõ về ý nghĩa khi sao Cự Môn tọa cung Tử Tức. Hãy khám phá thêm những kiến thức thú vị khác về tử vi đẩu số được thầy [Gia Cát Trường Phong](https://www.besport.com/group/1281238) chia sẻ tại tracuutuvi.com bạn nhé!
+Cự Môn cung Tử Tức thường chủ về con cái có tính cách độc lập, tài ăn nói và ứng biến tốt. Tuy nhiên, nếu có sao xấu đi cùng thì có thể chủ về thị phi, điều tiếng và tai họa xảy đến với con cái của đương số do lời ăn tiếng nói hằng ngày. Hy vọng bài viết này đã giúp bạn hiểu rõ về ý nghĩa khi sao Cự Môn tọa cung Tử Tức. Hãy khám phá thêm những kiến thức thú vị khác về tử vi đẩu số được thầy Gia Cát Trường Phong chia sẻ tại tracuutuvi.com bạn nhé!
