@@ -58,7 +58,7 @@ Cự Môn, Hóa Kỵ đồng cung Tử Tức chủ về những thị phi, đi�
 
 Cung Tử Tức có các sao Cự Môn, Kình Dương, Đà La đồng tọa chủ về sinh con trai muộn hoặc con trai có sức khỏe không tốt, hay ốm đau. Nếu cách cục sao Cự Môn cung Tử Tức có Kình Dương, Đà La; lại thêm Hỏa Tinh, Linh Tinh, Địa Không, Địa Kiếp cùng tọa thì chủ về con cái của đương số có sức đề kháng yếu, dễ mắc bệnh.
 
-**"Sao Tham Lang an tại Cung Tử Tức hé lộ vận mệnh, tính cách và tương lai của con cái — khám phá chi tiết trong bài viết này: [tham lang cung tử tức](https://coubic.com/tuvidauso/1606024](https://tuvisomenh.stores.jp/reserve/tuvidauso/1606024)**
+**"Sao Tham Lang an tại Cung Tử Tức hé lộ vận mệnh, tính cách và tương lai của con cái — khám phá chi tiết trong bài viết này: [tham lang cung tử tức](https://tuvisomenh.stores.jp/reserve/tuvidauso/1606024)**
 
 ### Cự Môn cung Tử Tức tại Tý, Ngọ
 
